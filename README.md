@@ -1,1 +1,1 @@
-# bogoly.github.io
+# bogoly tenyésztés
